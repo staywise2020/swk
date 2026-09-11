@@ -1,2 +1,2 @@
-# swk
-Stay Wise Krew was born from a spark in late spring 2019, when the phrase “Stay Wise” and the vision behind it began to take shape; a philosophy, a movement, and a home.
+# Stay Wise Krew
+Envisioned in late spring of 2019, the phrase “Stay Wise” and its spirit first came alive. A philosophy, a banner, and a community of allies who stand for something greater than themselves. More than just a random idea to break boredom—it’s a movement built on creativity, style, and truth, determined to stand up to the hard issues ahead of us. Moving the weight of the world out of the way aside, this is a like an [ALJ&F](https://alj-productions.neocities.org/alj-n-friends) sub-project to some degree. We would go in-depth of future members of this particular idea, but more information coming soon.
